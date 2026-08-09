@@ -1,16 +1,12 @@
-## Hi there 👋
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31nud5lskfqwuiiq6ugzgdr42tre&cover_image=true&theme=apple&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&mode=dark)](https://github.com/kittinan/spotify-github-profile)
 
-<!--
-**Caelvynn/Caelvynn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+                  —————
+Talk only when absolutely necessary; I don't like talkative people. 
+;;
+call me soy/seila!
+       ✦
+📌 My hobbies
+- taiyaki
+- kyojuro
+- football
+- sleep 
