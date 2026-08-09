@@ -5,8 +5,9 @@ Talk only when absolutely necessary; I don't like talkative people.
 ;;
               
 call me soy/seila!
-       "
-📌 My hobbies
+
+       
+ 📌 My hobbies
 - taiyaki
 - kyojuro
 - football
