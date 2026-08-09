@@ -3,8 +3,9 @@
                   —————
 Talk only when absolutely necessary; I don't like talkative people. 
 ;;
+              
 call me soy/seila!
-       ✦
+       "
 📌 My hobbies
 - taiyaki
 - kyojuro
