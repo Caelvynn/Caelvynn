@@ -4,7 +4,7 @@
 𓆏 ˚₊‧꒰ა just a little soul, quietly finding its way through this world ໒꒱ ‧₊˚
 
                   
-                   —————
+                     —————
 Talk only when absolutely necessary; I don't like talkative people. 
 ;;
               
