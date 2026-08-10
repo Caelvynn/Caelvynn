@@ -3,6 +3,10 @@
 </p>
 𓆏 ˚₊‧꒰ა just a little soul, quietly finding its way through this world ໒꒱ ‧₊˚
 
+<p align="center">
+  <img src="./sun.gif" width="500">
+</p>
+[𝓘 𝔀𝓪𝓷𝓽 𝓽𝓸 𝓫𝓮 𝓫𝓾𝓻𝓲𝓮𝓭 𝓲𝓷 𝓪 𝓹𝓵𝓪𝓬𝓮 𝓯𝓲𝓵𝓵𝓮𝓭 𝔀𝓲𝓽𝓱 𝓼𝓾𝓷𝓯𝓵𝓸𝔀𝓮𝓻𝓼.🌻]
                   
                     —————
 Talk only when absolutely necessary; I don't like talkative people. 
