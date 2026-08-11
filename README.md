@@ -1,6 +1,4 @@
-<p align="center">
-  <img src="./farm.gif" width="500">
-</p>
+            Hi, I'm Seila.
 𓆏 ˚₊‧꒰ა just a little soul, quietly finding its way through this world ໒꒱ ‧₊˚
 
 <p align="center">
