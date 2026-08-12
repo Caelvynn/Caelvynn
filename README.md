@@ -10,7 +10,7 @@
   <img src="./cris.gif" width="500">
 </p> 
 
-                    𝐂𝐫𝐢𝐬𝐬.
+                      𝐂𝐫𝐢𝐬𝐬.
                 
 Talk only when absolutely necessary; I don't like talkative people. 
 
