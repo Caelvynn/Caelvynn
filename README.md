@@ -5,7 +5,7 @@
 𝓘 𝔀𝓪𝓷𝓽 𝓽𝓸 𝓫𝓮 𝓫𝓾𝓻𝓲𝓮𝓭 𝓲𝓷 𝓪 𝓹𝓵𝓪𝓬𝓮 𝓯𝓲𝓵𝓵𝓮𝓭 𝔀𝓲𝓽𝓱 𝓼𝓾𝓷𝓯𝓵𝓸𝔀𝓮𝓻𝓼.🌻
                   
                     —————
-                    <p align="center">
+                    
 <p align="center">
   <img src="./cris.gif" width="500">
 </p> 
